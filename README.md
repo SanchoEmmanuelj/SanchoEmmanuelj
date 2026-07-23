@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Emmanuel Jongwo Sancho
-- 👀 I am seeking entry level roles Finance and Accounting.
-- 🌱 I am a fresh graduate very ambitious.
+- 👋 Hi, I am Jongwo Sancho Emmanuel.
+- 👀 I am seeking entry level roles in Finance and Accounting.
+- 🌱 I am a fresh graduate with a Masters in Economics and Business Administration, very ambitious.
 - I am also certified project management professional.
 - 📫 sanchoemmanuelj@gmail.com
 
