@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Emmanuel Jongwo Sancho
-- 👀 I’m interested in Software Project Managetment
-- 🌱 I’m currently enrolled for a Diploma in Cloud Engineering at AltSchool Africa.
-- 💞️ I’m a certified project management professional and looking to collaborate on software projects.
+- 👀 I am seeking entry level roles Finance and Accounting.
+- 🌱 I am a fresh graduate very ambitious.
+- I am also certified project management professional.
 - 📫 sanchoemmanuelj@gmail.com
 
 <!---
